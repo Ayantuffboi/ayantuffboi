@@ -6,5 +6,5 @@
 
 pls go to my github OR ELSE
 
-i just make this that usually work
+i just make things that usually work
 
